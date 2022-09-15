@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @heyitsgiel
+- 👀 I’m interested in creative arts, music, writing, community, and diversity.
+- 🌱 I’m currently learning UX Design, Frontend Web Developmennt, App Coding, and WEB 3.
+- 💞️ I’m looking to collaborate on social, creative, sustainable and diverse cultural projects. 
+- 📫 You can reach me at hello@heyitsgiel.com
